@@ -1,5 +1,5 @@
-**
-Economic Growth and Foreign Aid in Kenya: Do Shocks Matter?**
+
+Economic Growth and Foreign Aid in Kenya: Do Shocks Matter?
 
 What This Project Is About 
 
